@@ -7,4 +7,5 @@
 
 ☆ and yes....I love the stars :D☆☆☆
 
+☆ Link:(even if you try to enter, you will get the same thing as in the image below) https://github.com/Uuwai/mawaru.exe-Malware
 ![image](https://github.com/Suwie0011/Mawaru.exe-By-Uuwai-/assets/131428030/e63534fb-d3ea-468a-b79b-055df6c80380)
